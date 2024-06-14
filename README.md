@@ -1,8 +1,10 @@
 
 ![imresizer-1718355328117](https://github.com/NikhilDadhania/nikhildadhania/assets/159712847/6a711ad8-fe1f-446c-88fb-d7642c79ff44)
 
-
 Howdy, I'm Nikhil.
+
+<img align="right" alt="Coding" width="250" src="https://user-images.githubusercontent.com/74038190/216644497-1951db19-8f3d-4e44-ac08-8e9d7e0d94a7.gif">
+
 ### 🧑🏻 Know more about me!
   - ✉️ Contact me at [@nikhildadhania](mailto:dadhanianik@gmail.com)
   - 💬 Ask me about design, project ideas, Esports-gaming
