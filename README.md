@@ -1,5 +1,6 @@
 
-![Purple Minimalist App Developer New LinkedIn Banner](https://github.com/NikhilDadhania/nikhildadhania/assets/159712847/54db443b-5783-4eea-876a-54c313955265)
+![imresizer-1718355328117](https://github.com/NikhilDadhania/nikhildadhania/assets/159712847/6a711ad8-fe1f-446c-88fb-d7642c79ff44)
+
 
 Howdy, I'm Nikhil.
 ### 🧑🏻 Know more about me!
